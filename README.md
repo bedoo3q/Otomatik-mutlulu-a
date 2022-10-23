@@ -1,0 +1,2 @@
+# Otomatik-mutlulu-a
+tt
